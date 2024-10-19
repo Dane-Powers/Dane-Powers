@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on projects that seek to solve complex problems, especially ones that could lead to innovation and great, positive change.
 - 📫 Reach out to me by email at dane.powers@mail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Numerous phenomena, ranging from music composition and theory to how peoples opinions shift and spread, can be expounded through mathematical frameworks.
+- ⚡ Fun fact: Numerous phenomena, ranging from music composition and theory to how people's opinions shift and spread, can be expounded through mathematical frameworks.
