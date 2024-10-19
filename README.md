@@ -1,0 +1,4 @@
+- 👋 Hello, I’m @Dane-Powers
+- 👀 I’m interested in mathematics, its ubiquity and its wide range of applications.
+- 🌱 I’m currently learning to code to aid my love for the application of mathematics.
+- 💞️ I’m looking to collaborate on projects that seek to solve complex problems, especially ones that could lead to innovation and great, positive change.
